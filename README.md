@@ -1,2 +1,0 @@
-# Beforewesaygoodbye
-Perjalanan pulang
